@@ -11,18 +11,18 @@ I can be shy for new people I dont know so I may or may not be look weird/rude t
 ## Get in Touch
 Feel free to reach out to me via [email](prensesesin0841@gmail.com) or connect with me on Instagram(https://www.instagram.com/yukiiscake_/)
 
-## freely to c + h in Pony Town ! it's fine with any ship w/ me ! Also please no proship , they are so disgusting . 
+,, freely to c + h in Pony Town ! it's fine with any ship w/ me ! Also please no proship , they are so disgusting . 
 
-## Do Not Copy my Skin Or Take Info About It
+,, Do Not Copy my Skin Or Take Info About It
 
-## I have an wife. So,, we can only be friends ! ^o^
+,, I have an wife. So,, we can only be friends ! ^o^
 
-## Do not bully me from my music taste !! I get umcomfortable w/ that
+,, Do not bully me from my music taste !! I get umcomfortable w/ that
 
-## Also ,, please do not to sexual/18+ stuff with me , I might be 14 years old but im disgusted by that so dni !! ^_^
+,, Also ,, please do not do sexual/18+ stuff with me , I might be 14 years old but im disgusted by that so dni !! ^_^
 
-## Im mostly afk or semi afk in pony town so ,, W2I me!
+,, Im mostly afk or semi afk in pony town so ,, W2I me!
 
-## Im 14 years old and turning to 15 this year!! 
+,, Im 14 years old and turning to 15 this year!! 
 
 Thats it ! ,, thanks for reading.. ^_^
