@@ -1,4 +1,4 @@
-# README-Hi there, I'm shellshell! (my nickname)
+# README-Hi there, I'm dandy speaking here! (my nickname)
 About Me
 I can be shy for new people I dont know so I may or may not be look weird/rude to you but its not like that!! I love spending my time with my bsf and wife , you can find me with them ^_^ ( my bsf ) ; https://github.com/PH1cosmic
 
