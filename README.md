@@ -27,3 +27,5 @@ Feel free to reach out to me via email or connect with me on Instagram(https://w
 ,, I hope one day his husband die ,, and go to fucking hell to never seen again . 
 
 ,, PLEASE . Be nice to my bsf . If dont ,, dni please ur disgusting . 
+
+,, Behind every sweet smile there is a bitter sadness that no one can ever see and feel.
