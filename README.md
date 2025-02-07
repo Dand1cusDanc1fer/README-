@@ -1,31 +1,22 @@
-# README-Hi there, I'm dandy speaking here! (my nickname)
-About Me
-I can be shy for new people I dont know so I may or may not be look weird/rude to you but its not like that!! I love spending my time with my bsf and wife , you can find me with them ^_^ ( my bsf ) ; https://github.com/PH1cosmic
+<< everyday im wishing for something i know it will never come .
 
-Skills
-I can draw but im beginner in it so i hope u are nice to me!! :3
-I can write !! I have a horror story i wrote ! If u wanna listen to it , just whisper me!
-Get in Touch
-Feel free to reach out to me via email or connect with me on Instagram(https://www.instagram.com/yukiiscake_/)
+<< i feel like im trapped in a box made of my moms abusements for me.
 
-,, freely to c + h in Pony Town ! it's fine with any ship w/ me ! Also please no proship , they are so disgusting .
+<< im smiling everyday to not make my friends unhappy or worried but i cant take it anymore . 
 
-,, Do Not Copy my Skin Or Take Info About It
+<< ,, Behind every sweet smile there is a bitter sadness that no one can ever see and feel .
 
-,, I have an gf. So,, we can only be friends and bestfriends! ^o^
+<< im tired of not getting noticed and my classmates making fun of me .
 
-,, Do not bully me from my music taste !! I get umcomfortable w/ that
+<< so i just hope one day life will be better . . . 
 
-,, Also ,, please do not do sexual/18+ stuff with me , I might be 14 years old but im disgusted by that so dni !! ^_^
+<< im tired of anything in my life .
 
-,, Im mostly afk or semi afk in pony town so ,, W2I me!
+<< i want to just fucking suicide .
 
-,, Im 14 years old and turning to 15 this year!!
 
-,, Im worried about my best friend.. I hate his fucking husband to making him even more and more depressed.
 
-,, I hope one day his husband die ,, and go to fucking hell to never seen again . 
 
-,, PLEASE . Be nice to my bsf . If dont ,, dni please ur disgusting . 
 
-,, Behind every sweet smile there is a bitter sadness that no one can ever see and feel.
+
+<< I WANT TO GET RID OF MY LIFE .
