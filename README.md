@@ -12,5 +12,5 @@
 
 ,, this is a huge wip so anywaysss..
 
-[![Uploading image.png…]()](https://i.pinimg.com/originals/b7/d6/ab/b7d6abecc698cdf0840ff7f5b22cdd41.jpg)
+![image](https://github.com/user-attachments/assets/caac9ea3-9706-4b2f-be84-e06d661cc8ef)
 
