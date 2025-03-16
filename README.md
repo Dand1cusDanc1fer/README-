@@ -12,7 +12,8 @@
 
 ,, this is a huge wip so anywaysss..
 
-![image](https://github.com/user-attachments/assets/caac9ea3-9706-4b2f-be84-e06d661cc8ef)
+![image](https://github.com/user-attachments/assets/8e753cd1-c4f7-448d-b44e-40998d524799)
+
 
 ![image](https://github.com/user-attachments/assets/3591a7f9-693c-4526-98e8-b03b2a8461c7)
 
