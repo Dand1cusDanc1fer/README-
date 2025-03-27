@@ -15,9 +15,8 @@
 
 ![0246-heartflowergrass](https://github.com/user-attachments/assets/2f916154-001e-4957-8288-6a43e841bd7e)
 
-[](https://i.pinimg.com/originals/92/00/42/920042aef41358c21131b912c1593e25.gif)
+[](https://i.pinimg.com/originals/92/00/42/920042aef41358c21131b912c1593e25.gif) https://blinkies.cafe/b/display/0229-roses.gif
 
-![image](https://github.com/user-attachments/assets/60e5fe44-4677-437a-a028-8f59a9e8e4ee)
 
 
 
