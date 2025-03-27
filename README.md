@@ -10,7 +10,7 @@
 
 ,, always overthink ,, so i recommend not get too comfortable on me unless ur a close friend ! im umcomfortable with thatt...
 
-,, this is a huge wip so anywaysss..
+ lesbian
 
 ![image](https://github.com/user-attachments/assets/c80b655c-0ec5-412c-8e65-29f43fa87b42)
 
